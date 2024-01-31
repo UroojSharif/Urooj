@@ -1,4 +1,4 @@
-# Urooj
+# UroojSharif
 Hi there :wave: <br>
 - I am Urooj. <br>
 - I studied Chemical Engineering :woman_student: and worked in Pakistan for 3 years. <br>
