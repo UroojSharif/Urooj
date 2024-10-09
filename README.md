@@ -3,8 +3,9 @@
 
 🚀 My goal? To create web pages so interactive, they practically do a backflip when you click a button. 
 
-💻 Expect quirky projects, random bugs I’ve befriended, and the occasional website that might compliment you on your coding skills! 😎
+🌟 Committed to continuous learning and sharing my journey in web development.
 
-urooj.shareef@hotmail.com
+ Let’s connect and grow together!
+ 📧 urooj.shareef@hotmail.com
 
 
